@@ -1,4 +1,5 @@
-![mens-2](https://github.com/tustago/blog/assets/134865268/00a1f911-8810-4988-8ade-85469e883029)
+![mens-2](https://github.com/tustago/blog/assets/134865268/2bd03645-dbfe-4b75-8268-4cf3e75073bc)
+
 
 ## A REVIEW OF MEN’S T-SHIRT BY LOVESEWINGMAG
 
