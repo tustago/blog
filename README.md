@@ -13,7 +13,7 @@ The first shirt for my husband, and it immediately became one of his favorites. 
 
 I liked the pattern. T-shirts are perfect for beginners, this T-shirt has an easy fit with no complex panels or darts to worry about. The neckline is finished with a jersey band, and you can choose to sew it either with a regular machine or an overlocker. It comes in sizes XS to XL. The markings are in the form of triangles, each labeled with the corresponding size to avoid confusion. The only thing to keep in mind is that the 1 cm seam allowances are already included.
 
-
+![image](https://photos.app.goo.gl/GSk7MmHSVWdksqsV8)
 
 So, I chose the M size and added an extra 2 cm in length to the shirt. The fabric is from @textile.contact.ua, and it’s a stretch jersey Penye with 90% cotton and 10% elastane. It’s 180 cm wide with a density of 180 and is made in Turkey.
 
